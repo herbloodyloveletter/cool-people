@@ -1,3 +1,3 @@
 # cool people
 
-[`obfuscating`](https://github.com/obfuscating) cool guy he is so cool
+[`obfuscating`](https://github.com/obfuscating123) cool guy he is so cool
